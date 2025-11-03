@@ -14,7 +14,7 @@ I help U.S. and Japanese organizations build bridges across cultures—ensuring 
 
 ## Contact
 
-- Email: [mike@mikeinjapan.com](mailto:mike@mikeinjapan.com)
+- Email: mike [at] mikeinjapan.com
 - Website: [mikeinjapan.com](https://mikeinjapan.com)
 
 ---
