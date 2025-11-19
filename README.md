@@ -8,7 +8,7 @@
 
 ## About
 
-I help U.S. and Japanese organizations build bridges across cultures—ensuring smooth communication, efficient operations, and successful project delivery. With over a decade of experience in Japan, I specialize in helping international teams avoid “rookie mistakes” and create partnerships built on trust.
+I help U.S. and Japanese organizations build bridges across cultures—ensuring smooth communication, efficient operations, and successful project delivery. With over a decade of experience in Japan, I specialize in helping international teams avoid rookie mistakes and create partnerships built on trust.
 
 ---
 
